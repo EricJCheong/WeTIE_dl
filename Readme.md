@@ -2,6 +2,7 @@
 
 **소속**: 고려대학교 산업경영공학부 학술동아리 WeTIE
 **학기**: 2025년 1학기
+[**아카이빙**](https://educated-war-9a2.notion.site/1bfcb34a6aac80308960cd11ba53d9d3?v=1bfcb34a6aac80e2ae16000c8b2722d5&pvs=74)
 
 ## 1. 세션 소개
 
